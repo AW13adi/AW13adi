@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aditya wagh adi
-- 👀 I’m interested in developing Android application & Softwares
+- 👀 I’m Developing Python Program's.Scripting Hacking Cods.Developing Android Applications.
 - 🌱 I’m currently learning High School 10th Standard
 - 💞️ I’m looking to collaborate on my Software
 - 📫 How to reach me by my Instagram account :Aditya_wagh_aw
